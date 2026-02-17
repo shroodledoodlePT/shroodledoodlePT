@@ -21,13 +21,13 @@ PONYTOWN BYI (Before You Interact):
 - I don't like being sat on or covered up; it's not a touch trigger (though it's really not that hard to respect those?) but it's just a personal comfort thing!
 - In many cases, I will hide things on my DNI list, especially those who try to interact with me!
 
-DNI (Do Not Interact):
-- Bigots of any kind (Homophobes, transphobes, aphobes, ableists, fakeclaimers, racists, fatphobes, et cetera)
-- Proshippers, 'anti-harassment' (while still harassing people themselves), and profiction
+PONYTOWN DNI (Do Not Interact):
+- Bigots of any kind (Homophobes, transphobes, TERFs, aphobes, ableists, fakeclaimers, racists, fatphobes, et cetera)
+- Proshippers, 'anti-harassment' (while still harassing people themselves), and profiction; this includes dead dove stuff. I'm sorry, I just don't want to interact.
 - Radqueers, _especially_ pro-paraphile radqueers
-- People who are weird to systems! It's none of your business!
-
-
+- People who are weird to systems! It's none of your business! I'm not a system myself, but I know many people who are and it's literally none of your business? This includes if you go to 'fake disorder cringe' subreddits.
+- People who go out of their way to harass people, especially other websites. It's really weird and uncomfortable to spend all of your time doing that.
+- Other general basic DNI criteria!
 
 
 
