@@ -16,7 +16,7 @@ INTERESTS:
 - Animal Crossing! Some of my favorite villagers are Merengue, Bob, Lolly, Daisy, Molly, and Stitches!
 
 PONYTOWN BYI (Before You Interact):
-- I tend to hide people temporarily very often when I'm uncomfortable - A few different things I tend to temp. hide for in particular are 'humping' (standing and sitting repeatedly); 'e-sexing' (especially when combined with humping); fetish/sex talk; drug talk or discussion of drugs; certain fandoms/character pairings I'm uncomfortable with. This isn't really an exhaustive list, so some reasons may not be mentioned!
+- I tend to hide people temporarily very often when I'm uncomfortable - A few different things I tend to temp. hide for in particular are advertising roleplays (just not relevant to me and spam the chat 💔); spamming, 'humping' (standing and sitting repeatedly); 'e-sexing' (especially when combined with humping); fetish/sex talk; drug talk or discussion of drugs; certain fandoms/character pairings I'm uncomfortable with. This isn't really an exhaustive list, so some reasons may not be mentioned!
 - I do not like being roleplayed with, I'm sorry! I stopped roleplaying many years ago. :c
 - I don't like being sat on or covered up; it's not a touch trigger (though it's really not that hard to respect those?) but it's just a personal comfort thing!
 - In many cases, I will hide things on my DNI list, especially those who try to interact with me!
@@ -25,9 +25,10 @@ PONYTOWN DNI (Do Not Interact):
 - Bigots of any kind (Homophobes, transphobes, TERFs, aphobes, ableists, fakeclaimers, racists, fatphobes, et cetera)
 - Proshippers, 'anti-harassment' (while still harassing people themselves), and profiction; this includes dead dove stuff. I'm sorry, I just don't want to interact.
 - Radqueers, _especially_ pro-paraphile radqueers
-- People who are weird to systems! It's none of your business! I'm not a system myself, but I know many people who are and it's literally none of your business? This includes if you go to 'fake disorder cringe' subreddits.
-- People who go out of their way to harass people, especially other websites. It's really weird and uncomfortable to spend all of your time doing that.
-- Other general basic DNI criteria!
+- People who are weird to systems! It's none of your business! I'm not a system myself, but I know many people who are and it's literally none of your business? This includes if you go to 'fake disorder cringe' subreddits!!
+- People who go out of their way to harass people; it's really weird and uncomfortable to spend all of your time doing that?? Literally why.
+- People who shit on other people's interests for giggles (rude???)
+- Other general basic DNI criteria! I am not entitled to tell you why I blocked you!
 
 
 
